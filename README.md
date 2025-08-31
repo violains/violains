@@ -1,2 +1,2 @@
-᲼<p align="center">![](https://komarev.com/ghpvc/?username=pwnhalo&abbreviated=true&style=flat-square&label=dearests&color=d0cea8)</p>
+᲼<p align="center">![](https://komarev.com/ghpvc/?username=pwnhalo&abbreviated=true&style=flat-square&label=lovies&color=c6596d)</p>
 
